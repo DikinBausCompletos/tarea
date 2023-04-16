@@ -1,0 +1,10 @@
+# leeme baby
+
+**IIC1001**
+
+H3LLO TH1S 1S TH3 GR34T T3R3Z1 PYROP3, H3R3 TO T3LL YOU 4BOUT TH3 B3ST PROGR4M 3V3R, TH3 69 PROGR3 G3N3R4TOR!!! 1N 4LL C4PS TH4TS R1GHT!
+TH1S PROGR4M PR1NTS G4Y S3X... 1-1 M34N... S4Y G3X! 69 T1M3S!!!, OH 4ND TH4TS NOT 4LL, 1T 4LSO PR1NTS TR4NS R1GHTS! 69 T1M3S!!!... 4ND TH4TS 1T, 3NJOY 1T
+
+(espero que se entienda, basicamente el programa imprime "say gex" y "trans rights" 69 veces)
+
+Juan Paulo Osorio Orellana
